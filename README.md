@@ -11,6 +11,7 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is I eat instant noodles almost everyday
-* Ask Mr. Vu anything:
+* Ask Mr. Vu anything: why did you go bald
 * List your sports and extracurriculars you participate in
-
+Tennis
+Giving hands initiative club
